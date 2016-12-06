@@ -1,2 +1,3 @@
 # hello-world
 My 2nd attempt at coding....
+Hello and I hope all is well!  I'm trying to adapt to my enviroment by learning to read and write code!  I'm a huge collector of Art but most of all for the love of art!  I want to buy one pair of sneakers and be successful at something again that was once a huge part of my childhood.  I've not been able to buy a pair of sneakers or art in a very long time becuase of re-sellers plus the influx of bots.  I just want one pair of sneakers as I'm of modest means but want to relive what I once did in my youth, collect sneakers.  
